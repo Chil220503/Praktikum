@@ -1,0 +1,2 @@
+# Praktikum
+Terimakasih Pak Ary
